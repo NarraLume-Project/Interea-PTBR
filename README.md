@@ -4,4 +4,6 @@ O que diz estar sendo Trojan, é um falso positivo por conta que o interea.exe t
 
 
 Link para o Visual Novel original:https://echoproject.itch.io/interea
+
+
 Link Visual Novel alt: https://drive.google.com/file/d/1l_HTWBIt50CJJqWBCsoRm8MwEtTL8KGC/view?usp=sharing
